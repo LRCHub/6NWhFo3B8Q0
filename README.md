@@ -1,0 +1,92 @@
+# Jackson 5 – 帰ってほしいの
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Uh-huh huh huh huh
+Let me tell ya now
+Uh-huh
+When I had you to myself
+I didn't want you around
+Those pretty faces always made
+you stand out in a crowd
+But someone picked you
+from the bunch
+One glance was all it took
+Now it's much too late for me
+to take a second look
+Oh baby give me one more chance
+(Show you that I love you)
+Won't you please let me
+(Back in your heart)
+Oh darlin' I was blind to
+let you go
+(Let you go baby)
+But now
+since I see you in his arms
+(I want you back)
+Yes I do now
+(I want you back)
+Ooh ooh baby
+(I want you back)
+Ya ya ya ya
+(I want you back)
+Na na na na
+Tryin' to live without your love
+Is one long sleepless night
+Let me show you girl
+That I know wrong from right
+Every street you walk on
+I leave tear stains
+on the ground
+Following the girl
+I didn't even want around
+Let me tell you now
+Oh baby all
+I need is one more chance
+(Show you that I love you)
+Won't you please let me
+(Back to your heart)
+Oh darlin' I was blind to
+let you go
+(Let you go baby)
+But now
+since I see you in his arms
+Uh-huh
+A buh buh buh buh
+A buh buh buh buh
+All I want
+A buh buh buh buh
+All I need
+A buh buh buh buh
+All I want
+A buh buh buh buh
+All I need
+Oh, just one more chance
+To show you that I love you
+Baby!
+Baby!
+Baby!
+Baby!
+Baby!
+Baby!
+(I want you back)
+Forget what happened then
+Let me live again
+Oh baby I was blind to
+let you go
+But now
+since I see you in his arms
+(I want you back)
+Spare me of this cause
+Gimme back what I lost
+Oh baby
+I need one more chance ha
+I tell ya that I love you
+Baby!
+Baby!
+Baby!
+I want you back
+I want you back
+I want you back
+```
